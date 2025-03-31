@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Emily or known as Moonflwoer online!
+- 👋 Hi, I’m Emily or known as Moonflower online!
 - 👀 I’m interested in anything thats related to art!
 - 🌱 I’m currently learning coding, graphic design
 - 💞️ I’m looking to collaborate on nothing yet!
